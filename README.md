@@ -1,1 +1,2 @@
-# Poblaci-n-civilizaci-n-gobierno-y-leyes
+# Población-civilización-gobierno-y-leyes
+En América, en cambio, tuvieron que crearlo todo: población, civilización, gobierno y leyes, organización del trabajo, industria, comercio; y esta obra homérica fue realizada sobre todo por españoles e ingleses en poco más de un siglo. Los medios empleados no fueron nada suaves, pues desde luego las razas indígenas fueron con frecuencia explotadas, maltratadas y, a veces, hasta exterminadas a sangre y fuego por el yugo de la esclavitud. Sobre este punto los procedimientos europeos son idénticos en Asia y en América: las atrocidades de los Cortés y los Pizarro fueron excedidas por las de los Clive y Warren Hastings.
